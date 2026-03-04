@@ -1,1 +1,0 @@
-# primetrade.ai-INTERN-Assignment
